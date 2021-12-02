@@ -2,8 +2,6 @@
 
 🌐 Official Website : http://TerraFloki-PAD.com/
 
-📝 WhitePaper : http://TerraFloki-PAD.com/WhitePaper
-
 📝 Telegram group : https://t.me/TerraFlokiPADCommunity
 
 📝 Telegram channel : https://t.me/TerraFlokiPAD
